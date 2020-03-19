@@ -1,0 +1,2 @@
+# itanbatak
+Kalian Bangsat
